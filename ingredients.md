@@ -3,3 +3,4 @@
 * 2 tsp salt
 * 1/2 Onion
 * 1/2 garlic
+* 1/2 banana
