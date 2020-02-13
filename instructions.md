@@ -1,4 +1,4 @@
-* chop avocados
+* chop avocadoS
 * chop onion
 * squeeze lime
 * add salt
