@@ -1,4 +1,4 @@
-* 2 avocados
+* 2 avocadoS
 * 1 lime
 * 2 tsp salt
 * 1/2 Onion
